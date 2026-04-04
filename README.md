@@ -39,8 +39,8 @@
 
 ## 📞 МОИ КОНТАКТЫ | MY CONTACTS
 
-- **Для вопросов писать сюда: [https://t.me/ionicstarops](https://t.me/ionicstarops)**
-- **For any questions write here: [https://t.me/ionicstarops](https://t.me/ionicstarops)**
+- **Для вопросов писать сюда: [https://t.me/ionicstaropsv2](https://t.me/ionicstaropsv2)**
+- **For any questions write here: [https://t.me/ionicstaropsv2](https://t.me/ionicstaropsv2)**
 
 
 ### ⚠️ ЮРИДИЧЕСКАЯ ИНФОРМАЦИЯ / LEGAL INFORMATION / 法律信息
